@@ -1,0 +1,1 @@
+# optimized-5G-resource-allocation-for-metaverse-application
